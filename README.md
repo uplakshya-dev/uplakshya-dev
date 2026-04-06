@@ -1,4 +1,4 @@
-# Hi 👋 I'm Tushar Raj Ambuj
+# Hi 👋 I'm Uplakshya Singh
 
 🎓 BTech CSE (Artificial Intelligence) Student  
 💻 Programmer | AI Enthusiast | AI Learner  
